@@ -10,4 +10,10 @@
 - 🔆 me siga  nas redes sociais...
 - 👩 Pronouns: ela/dela...
 
+##
+
+  
+  
+  
+
 
